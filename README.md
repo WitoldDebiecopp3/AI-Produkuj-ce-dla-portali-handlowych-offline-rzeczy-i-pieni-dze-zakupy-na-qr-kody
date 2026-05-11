@@ -1,1 +1,1 @@
-# AI-Produkuj-ce-dla-portali-handlowych-offline-rzeczy-i-pieni-dze-zakupy-na-qr-kody
+# AI-Produkuj-ce-dla-portali-handlowych-offline-rzeczy-i-pieni-dze-zakupy-na-qr-kody AI Holding.
